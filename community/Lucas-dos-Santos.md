@@ -68,7 +68,7 @@ Acredito que a Ciência de Dados é uma fusão de arte e ciência—uma combina�
 🎯 Vamos Colaborar
 Estou sempre em busca de novos desafios e oportunidades para aplicar minhas habilidades em machine learning. Se você está procurando um profissional dedicado e inovador para impulsionar seus projetos orientados por dados, vamos nos conectar!
 
-Vamos construir algo incrível juntos!
+Vamos construir algo incrível juntos!🚀
 </i>
 
 
